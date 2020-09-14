@@ -9,7 +9,7 @@ Reach Me Threw:<br>
   Twitter: https://twitter.com/somj57<br>
   Linkdin: https://www.linkedin.com/in/somya-jaiswal-48b32b19b/<br>
   Email: som.jaiswal.sj1@gmail.com<br>
-  Photography: somj57.github.io/Photography
+  Photography: https://somj57.github.io/Photography
 ### Available for production works😁<br>
   
  
